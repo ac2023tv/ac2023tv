@@ -7,5 +7,4 @@
    永久导航：www.tonghaowu.com 
    备用导航：www.tonghaotv.com 
    ------------------------------------
-   看SM同好视频就上同好屋。
    ![推广图片](https://github.com/ac2023tv/ac2023tv/assets/171462255/d760d217-01c9-40ff-84dd-30c179f0b890)
